@@ -11,4 +11,4 @@ Hub: https://jdawgsindustries.com/
 
 No ads. We never sell your information.
 
-© J-Dawgs Industries
+© J-Dawgs Industries LLC
